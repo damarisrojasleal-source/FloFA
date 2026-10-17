@@ -1,0 +1,5 @@
+#Requerimientos principales
+kdnfkdnfkidifkn
+dfmkdnfkdmf
+dncjnducurn
+dkcnjkdcn
